@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @emiliadaniel
-- 👀 I’m interested in coding!
+- 👋 Hi, I’m Emilia Daniel!
+- 👀 I’m interested in codeing!
 - 🌱 I’m currently learning how to code.
 - 💞️ I’m looking to collaborate on I don't know yet.
 - 📫 How to reach me It's private, sorry.
